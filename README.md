@@ -4,8 +4,7 @@
   
 ![b1](https://github.com/Nasim1380p/project5-bootstrap/assets/155636802/4720cca9-bc7a-4329-8e9d-d74c5127a061)
 
-![pb2](https://github.com/Nasim1380p/project5-bootstrap/assets/155636802/8866bf06-333e-47c8-af0a-692c9b3fa72d)
-
+![b2](https://github.com/Nasim1380p/project5-bootstrap/assets/155636802/85240ee6-eaa8-45e1-b567-861e5e8496c3)
 
 
 
